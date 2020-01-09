@@ -1,0 +1,1 @@
+# smaingish.github.io
